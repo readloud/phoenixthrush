@@ -1,4 +1,4 @@
-## Editing my whole GitHub Account (deleting and reuploading some repos [January 4, 2022]) - could take months <br/><br/> If you still want to get my old code, click [here](https://www.icloud.com/iclouddrive/0ea1REsaJESsTirozHAHHQjFA#GitHub-Backup) to download my backup
+## Editing my whole GitHub Account - deleting, editing and reuploading all my repos [January 4, 2022] <br/><br/> Could take months (having other projects like learning new coding languages, data structures and algorithms and also data analyses while having school) <br/><br/> If you still want to get my old code, click [here](https://www.icloud.com/iclouddrive/0ea1REsaJESsTirozHAHHQjFA#GitHub-Backup) to download my backup
 <br/>
 
 # Phoenixthrush Develops - phoenixthrush.com
